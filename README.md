@@ -1,4 +1,4 @@
-![](https://github.com/lysteria27/DAY-3/blob/main/jimin%20chibi%20(2).jpg)
+![](https://media.giphy.com/media/xT8qBsOjMOcdeGJIU8/giphy.gif)
 # Introduction 👀
 I'm Deyasini Goswami and I'm from NSEC CSBS 1st year
 
